@@ -1,0 +1,1 @@
+My favorite restaurant is Teppanyaki in Disney World's EPCOT
